@@ -98,4 +98,4 @@ Sibusiso Vilakazi was not a bad player. He was simply the wrong player for what 
 
 In football, as in life, trying to manufacture what came naturally often breaks what you already built. Percy Tau was not made by Pitso's system, he elevated it. And no amount of tactical tinkering could force another player into a mold that never fit.
 
-The Sibusiso Vilakazi era at Mamelodi Sundowns is a cautionary tale of ego, stubbornness, and the dangerous belief that a system can create what only talent and chemistry can produtheirir
+The Sibusiso Vilakazi era at Mamelodi Sundowns is a cautionary tale of ego, stubbornness, and the dangerous belief that a system can create what only talent and chemistry can produce.
