@@ -1,18 +1,20 @@
 # Tap-Ins and Draws: The Sibusiso Vilakazi Era at Mamelodi Sundowns
 
-In 2016, Mamelodi Sundowns stood atop African football. Pitso Mosimane had built a free-flowing, positionless machine that averaged over two goals per game, dismantled opponents across the continent, and lifted the CAF Champions League trophy. The attack was a collective: Keagan Dolly, Khama Billiat, Leonardo Castro, and a young phenomenon named Percy Tau, each contributing, none carrying the burden alone.
+In October 2016, Mamelodi Sundowns lifted the CAF Champions League trophy. They had conquered Africa with a swagger that announced a new power in the continent. The final was won across two legs against Zamalek: 3-0 in Pretoria, a fighting 1-0 loss in Cairo. The medals were handed out. The players celebrated.
 
-Then the exodus began.
+Among them was Sibusiso Vilakazi, signed from Bidvest Wits just months earlier in January 2016. He had been an unused substitute in both legs. He had not touched the ball in the final. Yet there he was, kissing the medal, basking in the glory of a triumph he had done nothing to earn.
 
-Dolly left for Montpellier. Billiat and Castro crossed to Kaizer Chiefs. Tau, the crown jewel, departed for Brighton. Pitso Mosimane, the coach who had built a system on collective brilliance, faced a choice: rebuild the ensemble or manufacture a new star.
+That image would come to define his Sundowns career. Vilakazi was handed everything: the status, the starting position, the system built around him. He was Pitso Mosimane's project, the chosen heir to Percy Tau. But he never earned it. And for three years, the team that had conquered Africa suffered for his anointment.
 
-He chose the star.
+Now, some call him a Sundowns legend. They point to the league titles, the cups, the CAF medal. They count the trophies as if his presence on the pitch contributed to them. But the truth is the opposite. Those trophies were won *despite* Vilakazi, not because of him. He was carried by a team that functioned better when he was not on the field, a fact that became undeniable when injury finally forced him out and Sundowns immediately returned to their free-scoring ways.
+
+This is the story of the Sibusiso Vilakazi era at Mamelodi Sundowns. It is a story of ego, stubbornness, and the dangerous belief that a system can manufacture what only talent and chemistry can produce.
 
 ---
 
 ## The Anointing
 
-In 2017, Sundowns signed Sibusiso Vilakazi from Bidvest Wits. On paper, it made sense. Vilakazi was the reigning PSL Player of the Season, a technically gifted playmaker with intelligence and poise. Pitso saw in him the raw materials to sculpt the next Percy Tau.
+In January 2016, Sundowns signed Sibusiso Vilakazi from Bidvest Wits. On paper, it made sense. Vilakazi was the reigning PSL Player of the Season, a technically gifted playmaker with intelligence and poise. Pitso saw in him the raw materials to sculpt the next Percy Tau.
 
 What he failed to account for was the difference in archetype.
 
@@ -64,6 +66,22 @@ Yet Pitso kept starting him. Match after match, the pattern repeated: slow start
 
 ---
 
+## The Myth of Vila
+
+Even now, years after the experiment failed, there are those who defend Sibusiso Vilakazi. They cling to three pillars of evidence.
+
+**First, the Wits reputation.** Vilakazi was the PSL Player of the Season in 2015-16, a genuine talent who ran games and scored spectacular goals. But that player never wore a Sundowns shirt. The Wits version of Vila was built around. The Sundowns version was supposed to fit into a machine. He could not. Yet the memory of what he had been bought him years of patience he never deserved.
+
+**Second, the "intelligent player" label.** When his flaws became undeniable, his defenders would retreat to this phrase. The implication was that those who wanted him dropped simply did not understand football. But intelligence without bravery is useless. Vilakazi played not to lose the ball rather than to create. The team scored after he was substituted not because the replacements were less intelligent, but because they played with urgency and directness. Caution is not intelligence. It is fear.
+
+**Third, the Barcelona tap-in.** In 2018, Vilakazi scored in a friendly against Barcelona. It was a simple finish from close range, a moment that changed nothing about his performances in competitive matches. Yet it was cited again and again as proof of his quality. A friendly goal against a team that was not trying became the highlight of his Sundowns career.
+
+Remove these three pillars, and what remains? A player who was handed a starting spot he did not earn, who made the team worse every time he played, whose absence improved the attack immediately, and who kissed a Champions League medal without touching the ball in the final.
+
+That is not a legend. That is a passenger.
+
+---
+
 ## The Injury That Saved Sundowns
 
 In late 2019, Vilakazi suffered a meniscus injury that kept him out for several months. It was the best thing that could have happened for Sundowns.
@@ -99,3 +117,11 @@ Sibusiso Vilakazi was not a bad player. He was simply the wrong player for what 
 In football, as in life, trying to manufacture what came naturally often breaks what you already built. Percy Tau was not made by Pitso's system, he elevated it. And no amount of tactical tinkering could force another player into a mold that never fit.
 
 The Sibusiso Vilakazi era at Mamelodi Sundowns is a cautionary tale of ego, stubbornness, and the dangerous belief that a system can create what only talent and chemistry can produce.
+
+He kissed a medal in Cairo without touching the ball. He scored a tap-in against Barcelona. He was "intelligent." He was good at Wits.
+
+None of it made Sundowns better.
+
+---
+
+*Tap-ins and draws. A project that failed. A legend that never was.*
