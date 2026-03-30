@@ -28,7 +28,7 @@ The final day arrived. Chiefs needed a win to secure the title. They faced Barok
 
 Chiefs drew. 1-1.
 
-The goal that condemned them was scored by Lord Kambole, a striker who had done little else all season. He scored to save Baroka from relegation and to break Chiefs' hearts in the same moment.
+The goal that condemned them was scored by Lord Kambala, a striker who had done little else all season. He scored to save Baroka from relegation and to break Chiefs' hearts in the same moment.
 
 Meanwhile, Sundowns were playing their fixture with a single-minded focus: score as many as possible. They knew that if Chiefs slipped, goal difference could decide the title. They scored goals. They kept scoring. They won. And on the final day, after 379 days of Chiefs leading the race, Sundowns sat at the top of the log for the first time all season. It was the only day that mattered.
 
