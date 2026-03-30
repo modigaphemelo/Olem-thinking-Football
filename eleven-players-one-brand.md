@@ -6,9 +6,55 @@ It was the last time Kaizer Chiefs looked like a football club.
 
 What followed was not a rebuilding phase. It was a decade of denial. Coaches came and went. Stars were signed and discarded. The academy produced talent that never played. The trophy cabinet stayed empty. And through it all, the brand grew. The stadiums stayed full. The merchandise kept selling. The media never stopped treating Chiefs as the biggest story in the country.
 
-But a brand does not win trophies. A football club does. And for nearly a decade, Kaizer Chiefs had been the former while pretending to be the latter.
+But a brand does not win trophies. A football club does. And for ten years, Kaizer Chiefs had been the former while pretending to be the latter.
 
-Then came the 2024 Nedbank Cup. A penalty shootout. A trophy. The drought was over. But did anything really change?
+Then came 2025. The Nedbank Cup final. 2-1. A trophy. The drought was over.
+
+But did anything really change?
+
+---
+
+## The One That Got Away: 2019-20
+
+The 2019-20 PSL season was the one that should have ended the drought. Kaizer Chiefs sat at the top of the log for 379 days. From August 2019 to September 2020, they were the team to catch. They had built a lead. They had the momentum. They had destiny in their hands.
+
+Then COVID-19 happened.
+
+The league was suspended in March 2020. When it resumed in August, the conditions were unlike anything South African football had seen. Empty stadiums. Biosecure bubbles. A compressed schedule. Football played in a vacuum.
+
+Chiefs came back looking like a team that had forgotten what made them successful. The lead began to shrink. The confidence drained. The fans watched from home, helpless, as the dream slipped away.
+
+The final day arrived. Chiefs needed a win to secure the title. They faced Baroka FC, a team fighting for survival. A draw would not be enough if Sundowns won their fixture.
+
+Chiefs drew. 1-1.
+
+The goal that condemned them was scored by Lord Kambole, a striker who had done little else all season. He scored to save Baroka from relegation and to break Chiefs' hearts in the same moment.
+
+Meanwhile, Sundowns were playing their fixture with a single-minded focus: score as many as possible. They knew that if Chiefs slipped, goal difference could decide the title. They scored goals. They kept scoring. They won. And on the final day, after 379 days of Chiefs leading the race, Sundowns sat at the top of the log for the first time all season. It was the only day that mattered.
+
+Chiefs had led for over a year. Sundowns led for one day. And Sundowns were champions.
+
+The 2019-20 title race was not lost on the final day. It was lost in the bubble, in the restart, in the inability to handle the pressure when it mattered most. A club that had spent 379 days on top could not close the deal. And Sundowns, ruthless and relentless, did what champions do: they were ready when the opportunity came.
+
+---
+
+## The CAF Mirage: Hunt and Baxter
+
+While Chiefs were collapsing in the league, they found unexpected success in the CAF Champions League.
+
+Gavin Hunt was hired in 2020, tasked with rebuilding after the 2019-20 heartbreak. The league form never came. Hunt's Chiefs were inconsistent, disjointed, and never looked like title contenders. But in the CAF Champions League, something clicked. They navigated the group stages, then knocked out Wydad Casablanca in the quarterfinals. It was a result that shocked the continent. Chiefs were in the semifinals.
+
+Then Hunt was fired.
+
+The official reasons were never clear. The league form was poor. The results were not matching expectations. But firing a coach who had just guided the team to a CAF Champions League semifinal was pure Chiefs: short-term panic, no vision, no understanding of what it takes to build something sustainable.
+
+Stuart Baxter returned. He was the last coach to win a league title with Chiefs, back in 2015. He was pragmatic, defensive, experienced. He took the team the rest of the way, guiding them to the CAF Champions League final. It was the first time a South African club had reached the final since Sundowns in 2016.
+
+The final was a disaster. Chiefs faced Al Ahly, now coached by Pitso Mosimane. The same Pitso who had built the Sundowns machine. The same Pitso who knew South African football inside out. He outclassed them. Al Ahly won 3-0. Chiefs never stood a chance. The irony was brutal: the coach Chiefs had once employed was outmaneuvered by the coach Chiefs had never managed to hire.
+
+The CAF run was a mirage. It masked the deeper problems. A team that could reach a continental final could not win a league title. A club that fired a coach after a semifinal appearance had no long-term plan. A pragmatic, defensive style could take you far in knockout competitions, but it could not deliver the consistency required to win a 30-game league season.
+
+Baxter left not long after. The CAF final was his last stand. Chiefs had reached the pinnacle of African football and been found wanting. The structural problems that had plagued them for a decade had not been fixed by a cup run. They had only been hidden.
 
 ---
 
@@ -24,11 +70,49 @@ Since then:
 
 - Giovanni Solinas lasted four months
 - Ernst Middendorp had two separate stints, each ending in collapse
-- Gavin Hunt was fired after one season
+- Gavin Hunt was fired after one season, despite a CAF Champions League semifinal
 - Arthur Zwane, a club legend, was given eighteen months before being pushed aside
 - Molefi Ntseki, who had no business coaching a club of Chiefs' size, lasted even less
 
 Each coach brought a different system. Each was given less than two years. Each was fired when the underlying problems remained. The board kept treating the coach as the problem, and the coach kept being replaced, and the problems kept getting worse.
+
+---
+
+## The Recruitment Philosophy Divide
+
+Sundowns win leagues. Pirates win cups. Chiefs win nothing. The difference starts with recruitment.
+
+### Sundowns: The League Builders
+
+Sundowns scout for consistency. They target players who can deliver over 30 games, not just in big moments. Peter Shalulile is the ultimate example: a striker who scores in October and February, not only in cup finals. He wins leagues because he delivers week after week.
+
+They sign system players who fit the collective, not stars who need the system built around them. They scout for discipline, professionalism, and tactical intelligence. They build depth, knowing that leagues are won by teams that can rotate without dropping points.
+
+Sundowns are built to win leagues. The 2019-20 season proved it: they led the log for only one day, but it was the only day that mattered. They were ready when the opportunity came.
+
+### Pirates: The Cup Specialists
+
+Pirates recruit for moments. Their players tend to be explosive but inconsistent, capable of magic in a knockout game but unreliable week to week. They thrive in big games, rising to the occasion in derbies and cup finals but going missing against relegation-threatened teams in midwinter.
+
+They take chances on flair players, mavericks, players who can win a match on their own but cannot be relied upon to do it every time. The result is a team that thrives in knockout competitions. Pirates have won cups consistently over the past decade. They have reached CAF Champions League finals. They have beaten the best on their day.
+
+But they cannot win leagues. Four runners-up finishes in a row is not bad luck. It is a recruitment philosophy that prioritizes moments over consistency.
+
+### Chiefs: No Clear Profile
+
+Chiefs have no identity in recruitment. The only consistent factor is cost.
+
+- **Free agents:** Chiefs prefer players whose contracts have expired. This saves money upfront but means they are often competing with other clubs for players who were let go for a reason.
+- **Out-of-contract stars:** They sign veterans on their last big contracts, players with name recognition but declining physical capacity.
+- **Panic buys:** When the pressure mounts, they sign whoever is available, regardless of fit or long-term planning.
+
+There is no profile. Some years they target youth. Some years they target experience. Some years they target flair. Some years they target physicality. There is no coherent philosophy, no scouting blueprint, no understanding of what kind of player succeeds in their system, because they do not have a system.
+
+The result is a squad that is a collection of individuals, not a team. Players who do not complement each other. A salary bill full of veterans who cannot go the distance. A revolving door of coaches trying to make sense of a squad assembled without logic.
+
+Sundowns sign players who win leagues. Pirates sign players who win cups. Chiefs sign players who are available.
+
+And the trophy cabinet reflects that.
 
 ---
 
@@ -72,25 +156,13 @@ There is a reason the same patterns repeat regardless of the coach, regardless o
 
 Kaizer Chiefs is a family business.
 
-Kaizer Motaung founded the club. His son, Kaizer Motaung Junior, now runs football operations. The family controls everything, and they are not going anywhere. The problem is not that they do not care. The problem is that there is no accountability.
+Kaizer Motaung founded the club. His sons, Bobby and Kaizer Junior, have run football operations for decades. The family controls everything, and they are not going anywhere. The problem is not that they do not care. The problem is that there is no accountability.
 
-In a properly structured club, if the football operation fails for a decade, the people running it are replaced. At Chiefs, that cannot happen. The same people have been making decisions for years, with the same results, and there is no mechanism for change.
+In a properly structured club, if the football operation fails for a decade, the people running it are replaced. At Chiefs, that cannot happen. The same family has been making decisions for years, with the same results, and there is no mechanism for change.
 
-To be fair, Junior has done better than his father. The Bobby years were chaos. Agents ran the club. Signings were made for reasons other than football. The constant crisis mode was exhausting. Junior has brought stability. The Nedbank Cup trophy in 2024 was real. The recruitment has been more sensible. The constant leaks and internal politics have quietened.
+To be fair, the recent shift toward Kaizer Junior taking a larger role has brought more stability than the Bobby years. The Bobby era was chaos: agents ran the club, signings were made for reasons other than football, the constant crisis mode was exhausting. Under Kaizer Junior, the 2025 Nedbank Cup trophy is real. The recruitment has been more sensible. The constant leaks and internal politics have quietened.
 
-But better than chaos is not the same as competing with Sundowns. The ceiling is still there, and the ceiling is set by the family structure. You cannot fire yourself. You cannot bring in a genuine sporting director with real authority if that person would outrank the family. The club will only go as far as the Motaungs can take it, and a decade of evidence suggests that is not far enough.
-
----
-
-## The Sundowns Blueprint
-
-The most painful part for Chiefs fans is that the blueprint exists. It is sitting in Chloorkop, winning league titles and competing in Africa.
-
-Sundowns invested in infrastructure, not just players. They built a high-performance center that rivals European clubs. They hired football people to run football operations, not family members. They built a squad with depth and balance, buying the best players from rivals while also producing their own talent. They created a culture where winning is expected, not hoped for.
-
-Chiefs had the resources to do all of this. The brand was bigger. The fan base was larger. The history was richer. They chose not to. And now they are a decade behind, still signing stars, still firing coaches, still wondering why nothing changes.
-
-The gap between the two clubs is not on the scoreboard. It is in every department of the two institutions. One modernized. One did not.
+But better than chaos is not the same as competing with Sundowns. One cup, while significant, does not make up for a decade without a league title. The ceiling is still there, and the ceiling is set by the family structure. You cannot fire yourself. You cannot bring in a genuine sporting director with real authority if that person would outrank the family. The club will only go as far as the Motaungs can take it, and a decade of evidence suggests that is not far enough.
 
 ---
 
@@ -126,18 +198,18 @@ Eleven players take the field. They wear the same shirt. They carry the same his
 
 ## The Final Question
 
-The Nedbank Cup bought Chiefs time. It gave the fans something to celebrate. It let the club pretend that the corner had been turned.
+The 2025 Nedbank Cup bought Chiefs time. It gave the fans something to celebrate. It let the club claim that the corner had been turned.
 
-But the structural problems remain. The family still runs the club without accountability. The recruitment still lacks a coherent philosophy. The coaching carousel has only slowed, not stopped. The academy still produces talent that does not play.
+But the structural problems remain. The family still runs the club without accountability. The recruitment still lacks a coherent philosophy. The coaching carousel has only slowed, not stopped. The academy still produces talent that does not play. And the league title, the true measure of dominance, remains out of reach.
 
-The question is whether Chiefs will use the oxygen from that trophy to finally do the hard work of rebuilding, or whether they will treat it as proof that nothing needs to change.
+The question is whether Chiefs will use the oxygen from this cup win to finally do the hard work of rebuilding, or whether they will treat it as proof that nothing needs to change.
 
 A decade of evidence suggests the answer is already clear.
 
 The brand will survive. The merchandise will sell. The stadiums will stay full.
 
-But the trophies will stay in the past.
+But the league title? That stays in Chloorkop.
 
 ---
 
-*Eleven players. One brand. No plan.*
+*Eleven players. One brand. One cup. Still no plan.*
